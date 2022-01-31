@@ -1,0 +1,1 @@
+# thepalaceresort.github.io
